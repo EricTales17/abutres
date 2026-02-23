@@ -1,2 +1,0 @@
-# abutres
-olhos sempre abertos
